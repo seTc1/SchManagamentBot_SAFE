@@ -1,0 +1,1 @@
+# SchManagamentBot_SAFE
